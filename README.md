@@ -1,0 +1,2 @@
+# hyuaistudy
+HYU AI Studygroup
